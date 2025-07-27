@@ -28,7 +28,6 @@ Atualmente atuo com:
 - Design gráfico  
 - Edição de vídeo  
 - Desenvolvimento de sistemas de produtividade  
-- Criação de conteúdo para quem busca tirar mais dos seus dias
 
 ---
 
